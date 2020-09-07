@@ -6,4 +6,4 @@
 6. css and html practise at current job
 Also it would be awesome if you add links to source code)
 7. 4th grade at monastery school
-8. American TV-series 
+8. American TV-series
